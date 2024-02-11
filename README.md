@@ -12,6 +12,6 @@ here's my interests
 have a great day!
 keep mewing 
 
-##Bro thinks he tough talking on TikTok😭😭 If you ever see me on the streets you better run because I don’t play no games💯🙏🏽🙏🏽
-## gihub is cool
+## Bro thinks he tough talking on TikTok😭😭 If you ever see me on the streets you better run because I don’t play no games💯🙏🏽🙏🏽
+## github is cool
 ## ok bye
